@@ -1,0 +1,1 @@
+Big Data Analysis Technology for Electric Vehicle Networks in Smart Cities / Z. Lv, L. Qiao, K. Cai, Q. Wang. – Text : electronic // Ieee Transactions on Intelligent Transportation Systems. – 2021. – Vol. 22. – № 3. – URL: https://www.elibrary.ru/item.asp?id=45865341 .
